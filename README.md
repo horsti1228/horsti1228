@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @horsti1228
-- 👀 I’m interested in bones' stomachhole
+- 👀 I’m interested in the stomachhole of bones
 - 🌱 I’m currently learning how to (not) hate bones
 - 📫 How to reach me - u dont want to reach me
 
